@@ -1,4 +1,4 @@
-I am Arthur Stephen, a military professional and passionate learner, with knowledge as my weapon, innovation as my guide, and discipline as my foundation. I have a growing interest in technology, programming and business, driven by a desire to code the future with honour, purpose and pride.
+I am Arthur Stephen, a military professional and passionate learner, with knowledge as my weapon, innovation as my guide, and discipline as my foundation. I have a growing interest in technology, programming and business, driven by a desire to code the future with honour and pride.
 
 🙋‍♂️ About Me
 
